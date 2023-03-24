@@ -1,1 +1,0 @@
-# prichrd.dev
